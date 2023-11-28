@@ -1,0 +1,6 @@
+- 👋 Hi, I’m DarK LoNeLy
+- 👀 I’m interested in programming, but now I am a newbie.
+- 🌱 I’m currently learning python.
+- 💞 I like playing games: Clash of Clans and Free Fire are my favourite games.
+- 📫 How to reach me: @mr_dark_lonely is my telegram and instagram nick
+- 
